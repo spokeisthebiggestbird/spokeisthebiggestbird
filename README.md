@@ -1,7 +1,8 @@
  # chud
 
 
- <img width="567" height="567" alt="Untitled1081_20260607133905" src="https://github.com/user-attachments/assets/63dbe0be-cb80-4aba-9c82-86b8e6a86c8a" />
+ <img width="357" height="249" alt="image" src="https://github.com/user-attachments/assets/be4167a3-6ab2-4550-b381-49458fa3b33c" />
+
 
 
 
