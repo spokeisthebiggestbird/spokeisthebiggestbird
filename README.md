@@ -9,4 +9,4 @@
 
 
 
-[[ata]](vanillasquidd.atabook.org)       [[strawp]](https://vanilla-viddos.straw.page)      [[prns]](https://en.pronouns.page/account)   [[ rentry]](https://rentry.co/oethuxzf)
+[[ata]](vanillasquidd.atabook.org)       [[strawp]](https://vanilla-viddos.straw.page)      [[prns]](https://en.pronouns.page/@vanillasquiddo)   [[ rentry]](https://rentry.co/oethuxzf)
