@@ -14,4 +14,4 @@
 [[ata]](vanillasquidd.atabook.org)       [[strawp]](https://vanilla-viddos.straw.page)      [[prns]](https://en.pronouns.page/@vanillasquiddo)   [[ rentry]](https://rentry.co/oethuxzf)
 
 
-15:41[Wifiesss AFK c*h] I wanna be dominated lowkey
+15:41[Wifiesss AFK c*h] I wanna be dominated lowkey                < - - - , true . . . 
