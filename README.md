@@ -3,9 +3,7 @@
 . . . <img width="336" height="426" alt="squiddo !!!" src="https://github.com/user-attachments/assets/c306a3ac-c8a4-472c-a179-fd52af786d85" />  Im a squid im a little squid i like making friends im a little squid im also spoke yeah im a little squid i like women im a little squid call me Vanilla im a little squid or Havoc im a little squid OR EVEN SQUIDDO !!! im a little squid .
  
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312lnzcpg3hq46cxxf7d4c3x35cq&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
-
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312lnzcpg3hq46cxxf7d4c3x35cq&cover_image=false&theme=default&show_offline=true&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=5c5c5c&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312lnzcpg3hq46cxxf7d4c3x35cq&redirect=true)
 
 
 
